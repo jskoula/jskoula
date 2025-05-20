@@ -1,5 +1,6 @@
 # 👩🏻‍💻 Juli Skoula Bonachela
 
+
 **`Desenvolvedora `**
 
 Me chamo  Juli skoula Bonachela, tenho 16 anos e sou natural de São Paulo. Cursando o ensino médio , . Atualmente,. Sou apaixonada por futbol "
